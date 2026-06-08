@@ -1,0 +1,1 @@
+# RO2.24_project_Bagytzhan_Adilzhan
